@@ -1,0 +1,2 @@
+# somos
+mining
